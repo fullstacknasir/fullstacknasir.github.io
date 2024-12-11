@@ -1,1 +1,0 @@
-# fullstacknasir.github.io
